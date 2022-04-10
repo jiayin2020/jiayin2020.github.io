@@ -1,5 +1,4 @@
-## LesetCEO
-LesetCEO是以计算机科技与游戏为基础的兴趣团队，最终目标是实现资源共享 粉丝过万
+## LesetCEO创想
 
 [LesetCEO](https://space.bilibili.com/424131631)
 
@@ -13,7 +12,9 @@ LesetCEO是以计算机科技与游戏为基础的兴趣团队，最终目标是
 
 [可心团队](https://www.douyin.com/user/MS4wLjABAAAAXuFMkNmc-0cpntKjElRW2z8daFd2liY8b0P2BOK5Uks) [可心](https://www.douyin.com/user/MS4wLjABAAAAExv9Wzi2YJMpAxB67ncbxgBXzzSFVU9ZkGn2zwQswjE)
 
-LesetCEO扣扣粉丝群：1028550402  
+LesetCEO扣扣粉丝群：1028550402
+
+[cctv1 每周一至周六晚8点 青山不墨](https://tv.cctv.com/live/index.shtml?spm=C96370.PPDB2vhvSivD.EiWgcS6gSLDw.1)
 
 2022 LesetCEO
 
