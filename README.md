@@ -1,4 +1,4 @@
-## LesetCEO创想
+## Lecreate 乐创
 
 [LesetCEO](https://space.bilibili.com/424131631)
 
@@ -14,8 +14,6 @@
 
 LesetCEO扣扣粉丝群：1028550402
 
-[cctv1 每周一至周六晚8点 青山不墨](https://tv.cctv.com/live/index.shtml?spm=C96370.PPDB2vhvSivD.EiWgcS6gSLDw.1)
+嘉荫张亮麻辣烫正在营业中 地址：嘉荫县朝阳镇尚志街
 
-2022 LesetCEO
-
-[为MU5735飞行事故的132人祈祷](https://www.baidu.com/s?wd=mu5735&rsv_spt=1&rsv_iqid=0x859c246b00038acc&issp=1&f=8&rsv_bp=1&rsv_idx=2&ie=utf-8&tn=baiduhome_pg&rsv_enter=1&rsv_dl=tb&rsv_sug3=7&rsv_sug1=6&rsv_sug7=100&rsv_sug2=0&rsv_btype=i&inputT=2155&rsv_sug4=2739)
+2022 Lecreate
